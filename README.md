@@ -1,2 +1,2 @@
 # careerpath
-Brainstorming intentions for your career
+Use this template to reflect and capture the intentions you have for your career
